@@ -1,2 +1,0 @@
-# HakikiBoTZ
-Z
